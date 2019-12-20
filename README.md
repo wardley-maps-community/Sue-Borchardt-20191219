@@ -1,1 +1,1 @@
-# Sue-Borchardt-20191219
+Sue Borchardt’s [sketch](https://github.com/wardley-maps-community/Sue-Borchardt-20191219/raw/master/Andie%20Nordgren%20John%20Grant%20Ben%20Mosier%20Sue%20Borchardt%20Dec%2019%202019.jpg) of a conversation with the Wardley Mapping Community 19th December 2019
